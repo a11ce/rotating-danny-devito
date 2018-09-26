@@ -1,1 +1,1 @@
-(Here it is. (Warning: cryptocurrency miner\))[https://a11ce.github.io/rotating-danny-devito/]
+[Here it is.](https://a11ce.github.io/rotating-danny-devito/)
